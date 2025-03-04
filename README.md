@@ -49,7 +49,7 @@
 **`ingunfe1222@gmail.com`**
 
 统一密码是：Ddping89,由于使用免费ID的用户过多，ID频繁被锁或被恶意篡改，导致ID无法使用。
-不过另有获取实时ID的方法，
+不过另有获取实时ID的方法，去[登录这个网站](https://msyll.top/#/register?code=kMLKFXMq)，在登录后`查看文档`选择`iOS、Mac客户端`的教程，拉倒最低就是实时免费美区ID了。
 
 
 <br>
