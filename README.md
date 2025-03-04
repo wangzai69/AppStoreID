@@ -28,11 +28,13 @@
 ## 免费美区ID
 可下载小火箭的美区ID
 
-> kvjskjnd816@gmail.com
-> 524dggrddw@gmail.com
-> dfgs85gt4@gmail.com
-> 9585grffdd@gmail.com
+`
+**kvjskjnd816@gmail.com**
+**524dggrddw@gmail.com**
+**dfgs85gt4@gmail.com**
+**9585grffdd@gmail.com**
 
+`
 
 由于使用免费ID的用户过多，ID频繁被锁或被恶意篡改，导致ID无法使用
 
