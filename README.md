@@ -48,17 +48,8 @@
 
 **`ingunfe1222@gmail.com`**
 
-**`cendyhong6@gmail.com`**
-
-**`iideswo557@gmail.com`**
-
-**`owoeiurr85@gmail.com`**
-
-**`ckeihf2f11@gmail.com`**
-
-**`oiedhyhhii@gmail.com`**
-
-由于使用免费ID的用户过多，ID频繁被锁或被恶意篡改，导致ID无法使用
+统一密码是：Ddping89,由于使用免费ID的用户过多，ID频繁被锁或被恶意篡改，导致ID无法使用。
+不过另有获取实时ID的方法，
 
 
 <br>
