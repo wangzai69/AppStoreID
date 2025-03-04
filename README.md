@@ -28,10 +28,10 @@
 ## 免费美区ID
 可下载小火箭的美区ID
 `
--kvjskjnd816@gmail.com
--524dggrddw@gmail.com
--dfgs85gt4@gmail.com
--9585grffdd@gmail.com
+<br>kvjskjnd816@gmail.com
+<br>524dggrddw@gmail.com
+<br>dfgs85gt4@gmail.com
+<br>9585grffdd@gmail.com
 `
 
 
