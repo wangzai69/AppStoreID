@@ -54,7 +54,7 @@
   
 由于使用免费ID的用户过多，ID频繁被锁或被恶意篡改，导致ID无法使用。  
 
-不过另有获取实时ID的方法，去[登录VPN供应商官网](https://yq.yq3566.top/#/register?code=WYvHUyx6)，登录后 **` 查看文档 `** 打开 **` iOS、Mac客户端 `** 的教程，拉倒最低就是实时免费美区ID了。
+不过另有获取实时ID的方法，去[登录VPN供应商官网](https://yq.yq3566.top/#/register?code=WYvHUyx6)，登录后 **` 查看文档 `** 打开 **` iOS、Mac客户端 `** 的教程，拉倒最底就是实时免费美区ID了。
 
 
 <br>
